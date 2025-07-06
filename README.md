@@ -55,9 +55,7 @@ Sunita Lyn Williams is a record-setting astronaut known for:
 
 👤 Project By
 Apoorva
-Beginner HTML Developer
 📅 Last Updated: July 2025
-“Inspiration is everywhere — look up!” 🌠
 
 
 
